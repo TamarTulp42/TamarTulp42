@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @TamarTulp42
 - 👀 I’m interested in Sustainable Research & Entrepreneurship
-- 🌱 I’m currently learning whatever leads to harmony
-- 💞️ I’m looking to collaborate on Environmental Studies/ Projects
+- 🌱 Core values: Harmony inter- Humans& Environment and making a difference where there is none. 
+- 💞️ Always looking to collaborate on Environmental Protection studies and projects
 - ⚡ Check out my website: www.tulipsynergy.com
 - 📫 How to reach me tamar@tulipsynergy.com
 - 😄 Pronouns: Mr man
